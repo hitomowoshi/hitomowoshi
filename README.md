@@ -9,7 +9,7 @@ Capoo and Nyanko-sensei are my favorite cats <img src="https://media.giphy.com/m
 
 Here is my OTP, looking forward to their happy ending is one of the reason make me survive in this world, dont break my ship in front of me, thanks!
 
-![Kuro Shiro Family](add an image here)
+![Kuro Shiro Family](assets/img/TheMujous&Douji.jpg)
 
 Oh, I have a cute dog too. Her name is Misa.
 
